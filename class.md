@@ -1,0 +1,1 @@
+Erdem - Meta Android-Entwickler Zertifikat über berufliche Qualifikation
